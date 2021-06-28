@@ -1,1 +1,0 @@
-# Prototipo-App-Banco-Diversity
